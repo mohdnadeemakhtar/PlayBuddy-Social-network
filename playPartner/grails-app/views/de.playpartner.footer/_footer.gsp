@@ -1,0 +1,1 @@
+&copy; 2012 &middot; Nadeem Production
